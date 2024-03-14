@@ -1,0 +1,2 @@
+# Semipalatinsk.github.io
+Mypage
